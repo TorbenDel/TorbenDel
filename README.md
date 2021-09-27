@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TorbenDel
+- 👀 I’m interested in software
+- 🌱 I’m currently learning IT&Software in AP
+- 💞️ I’m looking to collaborate on whatever floats my boat
+- 📫 How to reach me: Discord?
